@@ -6,7 +6,7 @@
   
 ${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　crazy ᴏʀ mk　、he/sci/it prns}}$
 
-${\color{#B185B0}\textsf{8teen　　𓏲ּ𝄢　　osdd　.　system}}$
+${\color{#B185B0}\textsf{bodily 6teen　　𓏲ּ𝄢　　osdd　.　system}}$
 
 
 <img src="https://files.catbox.moe/e0ufqk.webp" width="80"> 
