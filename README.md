@@ -1,16 +1,14 @@
-## Hi there 👋
+<div align="center">ㅤㅤㅤㅤ
+  
+<img src="https://files.catbox.moe/135hcf.png" width="550">ㅤ 
 
-<!--
-**Crazybloxer/Crazybloxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  
+${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　crazy ᴏʀ mk　、he/sci/it prns}}$
 
-Here are some ideas to get you started:
+${\color{#B185B0}\textsf{8teen　　𓏲ּ𝄢　　osdd　.　system}}$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<img src="https://files.catbox.moe/e0ufqk.webp" width="80"> 
+<img src="https://files.catbox.moe/npbi5a.webp" width="80"> 
+<img src="https://files.catbox.moe/t2hl6h.gifv" width="80">
