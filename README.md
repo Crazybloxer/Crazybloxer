@@ -12,3 +12,16 @@ ${\color{#B185B0}\textsf{ osdd　　𓏲ּ𝄢　　system}}$
 <img src="https://files.catbox.moe/e0ufqk.webp" width="80"> 
 <img src="https://files.catbox.moe/npbi5a.webp" width="80"> 
 <img src="https://files.catbox.moe/ti726l.jpg" width="80">
+</p>
+<div align="center"><details close="">
+  <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#D28EB4}{\text{my titles!!!!!!}}$ </summary>
+   
+  <table>
+    <tr>
+      <td>
+        <br>
+  <div align="center">
+    this is a wip!
+  </table>
+ 
+</div>  
