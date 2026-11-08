@@ -1,8 +1,8 @@
 <div align="center"><details close="">
   <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#D28EB4}{\text{titles}}$ </summary>
   </p>
-<a href="https://github.com/pt-everybody"> @pt-everybody
- </a>: $\color{#D28EB4}{\text{pts crazyblox}}$
+<a href="https://github.com/pt-everypony"> @pt-everypony
+ </a>: $\color{#D28EB4}{\text{ponytowns crazyblox and heavykin}}$
 </p>
    </div>  
 
