@@ -14,7 +14,7 @@ ${\color{#B185B0}\textsf{ osdd　　𓏲ּ𝄢　　system}}$
 <img src="https://files.catbox.moe/ti726l.jpg" width="80">
 </p>
 <div align="center"><details close="">
-  <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#D28EB4}{\text{my titles!!!!!!}}$ </summary>
+  <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#D28EB4}{\text{info}}$ </summary>
    
   <table>
     <tr>
