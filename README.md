@@ -9,7 +9,8 @@
  </a>: $\color{#D28EB4}{\text{ponytowns crazyblox}}$
   </p>
 <a href="https://github.com/music-town"> @music-town
- </a>: $\color{#D28EB4}{\text{ponytowns incoming transmission(crazyblox chsse theme in forsaken)}}$
+ </a>: $\color{#D28EB4}{\text{pts incoming transmission}}$
+  $\color{#D28eb4}{\text{(crazyblox chsse theme in forsaken)}}$
 </p>
 </p>
 </div>  
