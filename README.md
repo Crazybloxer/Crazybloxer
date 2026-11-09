@@ -38,7 +38,7 @@ ${\color{#B185B0}\text{osdd　　𓏲ּ𝄢　　system}}$
   <div align="center">
 i emjoy c+h with others and I love when people do it with me. whisper to interact cuz I may not check public. if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles
 
-do not cover me or else your c+h or an oomf.
+do not cover me unelse your c+h with me or an oomf.
 
 I am offtab/doing something like 99% of the time so i may not see interactions alot, so whisper to me.
   
