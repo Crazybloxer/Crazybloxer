@@ -14,11 +14,13 @@
 </p>
 </p>
 </div>  
+<div align="center">
 
+  ![](https://komarev.com/ghpvc/?username=crazybloxer&color=d28eb4&label=ESCAPEES&abbreviated=false)
 
 <div align="center">ㅤㅤㅤㅤ
   
-<img src="https://files.catbox.moe/135hcf.png" width="550">ㅤ 
+<img src="https://files.catbox.moe/135hcf.png" width="350">ㅤ 
 
 <div align="center">
   
