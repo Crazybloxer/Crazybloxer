@@ -24,7 +24,7 @@
 
 <div align="center">
   
-${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　crazy ᴏʀ our collective names.　、he/sci/it prns}}$
+ ${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　crazy ᴏʀ our collective names.　、he/sci/it prns}}$
 
 ${\color{#B185B0}\textsf{ osdd　　𓏲ּ𝄢　　system}}$
 
