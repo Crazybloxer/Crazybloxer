@@ -35,13 +35,12 @@ ${\color{#B185B0}\text{osdd　　𓏲ּ𝄢　　system}}$
 </p>
 <div align="center"><details close="">
   <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#D28EB4}{\text{info}}$ </summary>
-   
-  <table>
-    <tr>
-      <td>
-        <br>
   <div align="center">
-    this is a wip!
-  </table>
+i emjoy c+h with others and I love when people do it with me. whisper to interact cuz I may not check public. if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles
+
+do not cover me or else your c+h or an oomf.
+
+I am offtab/doing something like 99% of the time so i may not see interactions alot, so whisper to me.
+  
  
 </div>  
