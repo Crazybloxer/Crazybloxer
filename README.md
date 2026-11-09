@@ -4,7 +4,15 @@
 <a href="https://github.com/pt-everypony"> @pt-everypony
  </a>: $\color{#D28EB4}{\text{ponytowns crazyblox and heavykin}}$
 </p>
-   </div>  
+</p>
+<a href="https://github.com/Knox-Event"> @Knox-Event
+ </a>: $\color{#D28EB4}{\text{ponytowns crazyblox}}$
+  </p>
+<a href="https://github.com/music-town"> @music-town
+ </a>: $\color{#D28EB4}{\text{ponytowns incoming transmission(crazyblox chsse theme in forsaken)
+</p>
+</p>
+</div>  
 
 
 <div align="center">ㅤㅤㅤㅤ
