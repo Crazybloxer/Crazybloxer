@@ -22,12 +22,13 @@
   
 <img src="https://files.catbox.moe/135hcf.png" width="350">ㅤ 
 
+
 <div align="center">
   
  ${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　crazy ᴏʀ our collective names.　、he/sci/it prns}}$
 
 ${\color{#B185B0}\textsf{ osdd　　𓏲ּ𝄢　　system}}$
-
+</div>
 
 <img src="https://files.catbox.moe/e0ufqk.webp" width="80"> 
 <img src="https://files.catbox.moe/npbi5a.webp" width="80"> 
