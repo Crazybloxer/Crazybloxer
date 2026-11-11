@@ -20,7 +20,7 @@
 </div>  
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=crazybloxer&color=d28eb4&label=ESCAPEES&abbreviated=false)
+  ![](https://komarev.com/ghpvc/?username=crazybloxer&color=8725AA&label=ESCAPEES&abbreviated=false)
 
 <div align="center">ㅤㅤㅤㅤ
   
