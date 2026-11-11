@@ -46,5 +46,7 @@ do not cover me unelse your c+h with me or an oomf.
 
 I am offtab/doing something like 99% of the time so i may not see interactions alot, so whisper to me.
   
- 
+i sleep alot on game. so if u whispered something to me i will not see it until i wake upp... 
+
+i am super awkward when speaking, especially if i have not interacted with you a lot or know you.
 </div>  
