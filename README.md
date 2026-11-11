@@ -56,3 +56,9 @@ i sleep alot on the game. so if u whispered something to me i will not see it un
 
 i am super awkward when speaking, especially if i have not interacted with you a lot or know you, more info is in rentry which is linked in my pronouns.cc or carrd!
 </div>  
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rtt5scft2pon6p5plygfjvw6zi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4a4f21)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
