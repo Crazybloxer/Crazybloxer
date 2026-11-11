@@ -1,16 +1,16 @@
 <div align="center"><details close="">
-  <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#D28EB4}{\text{titles}}$ </summary>
+  <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#8725AA}{\text{titles}}$ </summary>
   </p>
 <a href="https://github.com/pt-everypony"> @pt-everypony
- </a>: $\color{#D28EB4}{\text{ponytowns crazyblox and heavykin}}$
+ </a>: $\color{#8725AA}{\text{ponytowns crazyblox and heavykin}}$
 </p>
 </p>
 <a href="https://github.com/Knox-Event"> @Knox-Event
- </a>: $\color{#D28EB4}{\text{ponytowns crazyblox}}$
+ </a>: $\color{#8725AA}{\text{ponytowns crazyblox}}$
   </p>
 <a href="https://github.com/music-town"> @music-town
- </a>: $\color{#D28EB4}{\text{pts incoming transmission}}$
-  $\color{#D28eb4}{\text{(crazyblox chase theme in forsaken)}}$
+ </a>: $\color{#8725AA}{\text{pts incoming transmission}}$
+  $\color{#8725AA}{\text{(crazyblox chase theme in forsaken)}}$
 </p>
     </p>
 <a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken 
