@@ -29,9 +29,9 @@
 
 <div align="center">
   
- ${\color{#D28EB4}\text{ໃ ͝ 𓏼　crazy ᴏʀ our collective names.}}$ ${\color{#D28EB4}\text{he/sci/it prns}}$
+ ${\color{#A539CD}\text{ໃ ͝ 𓏼　crazy ᴏʀ our collective names.}}$ ${\color{#8725AA}\text{he/sci/it prns}}$
 
-${\color{#B185B0}\text{osdd　　𓏲ּ𝄢　　system}}$
+${\color{#9153A7}\text{osdd　　𓏲ּ𝄢　　system}}$
 
 <img src="https://files.catbox.moe/e0ufqk.webp" width="80"> 
 <img src="https://files.catbox.moe/npbi5a.webp" width="80"> 
