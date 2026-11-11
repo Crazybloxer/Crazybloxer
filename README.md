@@ -40,6 +40,7 @@ ${\color{#9153A7}\text{osdd　　𓏲ּ𝄢　　system}}$
 <div align="center"><details close="">
   <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#D28EB4}{\text{info}}$ </summary>
   <div align="center">
+  </p>
 i enjoy c+h with others and I love when people do it with me. whisper to interact cuz I may not check public. if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles so much.
 
 do not cover me unless your c+h with me or an oomf.
@@ -55,9 +56,9 @@ I am offtab/doing something like 99% of the time so i may not see interactions a
 i sleep alot on the game. so if u whispered something to me i will not see it until i wake upp... 
 
 i am super awkward when speaking, especially if i have not interacted with you a lot or know you, more info is in rentry which is linked in my pronouns.cc or carrd!
-</div
-  
- <p align="center"
+</p>
+</div>  
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rtt5scft2pon6p5plygfjvw6zi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4a4f21)](https://github.com/kittinan/spotify-github-profile)
 
 
