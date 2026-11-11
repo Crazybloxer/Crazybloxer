@@ -40,9 +40,9 @@ ${\color{#9153A7}\text{osdd　　𓏲ּ𝄢　　system}}$
 <div align="center"><details close="">
   <summary> <g-emoji class="g-emoji" alias="spades">🌀</g-emoji> $\color{#D28EB4}{\text{info}}$ </summary>
   <div align="center">
-i emjoy c+h with others and I love when people do it with me. whisper to interact cuz I may not check public. if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles so much.
+i enjoy c+h with others and I love when people do it with me. whisper to interact cuz I may not check public. if I'm already c+h with someone, still feel free to come up and cuddle with me too , i love cuddle piles so much.
 
-do not cover me unelse your c+h with me or an oomf.
+do not cover me unless your c+h with me or an oomf.
 
 I am offtab/doing something like 99% of the time so i may not see interactions alot, so whisper to me.
   
