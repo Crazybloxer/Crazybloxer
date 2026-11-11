@@ -24,7 +24,7 @@
 
 <div align="center">ㅤㅤㅤㅤ
   
-<img src="https://files.catbox.moe/135hcf.png" width="350">ㅤ 
+<img src="https://files.catbox.moe/3pug07.png" width="350">ㅤ 
 
 
 <div align="center">
