@@ -44,6 +44,8 @@ i enjoy c+h with others and I love when people do it with me. whisper to interac
 
 do not cover me unless your c+h with me or an oomf.
 
+hi pls treat us like a normal person, we dont wanna be treated differently just cuz we are a system.
+
 I accept friend request and don't care if you send me one, even if we barely know each other!!!
 
 bodily sixteenn, birthday is may4th !! may the fourth be with you #starwarsday
