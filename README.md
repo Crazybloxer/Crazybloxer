@@ -44,6 +44,10 @@ i enjoy c+h with others and I love when people do it with me. whisper to interac
 
 do not cover me unless your c+h with me or an oomf.
 
+I accept friend request and don't care if you send me one, even if we barely know each other!!!
+
+bodily sixteenn, birthday is may4th !! may the fourth be with you #starwarsday
+
 I am offtab/doing something like 99% of the time so i may not see interactions alot, so whisper to me.
   
 i sleep alot on the game. so if u whispered something to me i will not see it until i wake upp... 
