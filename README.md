@@ -17,11 +17,11 @@
  </a>: $\color{#8725AA}{\text{pts Crazyblox 1x1x1x1 skin}}$
 </p>
 <a href="https://github.com/THE-TEMPIST"> @THE-TEMPIST 
- </a>: $\color{#8725AA}{\text{pts Scarlet/mk2 (fe2)}}$
+ </a>: $\color{#8725AA}{\text{pts Scarlet/mk2 (flood escape)}}$
 </p>
   </p>
 <a href="https://github.com/pt-ship-nominations"> @pt-ship-nominations 
- </a>: $\color{#8725AA}{\text{pts Crazyblox (fe2)}}$
+ </a>: $\color{#8725AA}{\text{pts Crazyblox}}$
 </p>
 </p>
 </div>  
