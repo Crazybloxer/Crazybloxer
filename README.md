@@ -23,6 +23,10 @@
 <a href="https://github.com/pt-ship-nominations"> @pt-ship-nominations 
  </a>: $\color{#8725AA}{\text{pts Crazyblox}}$
 </p>
+    </p>
+<a href="https://github.com/pt-hall-of-fans"> @pt-hall-of-fans 
+ </a>: $\color{#8725AA}{\text{pts Crazyblox}}$
+</p>
 </p>
 </div>  
 <div align="center">
